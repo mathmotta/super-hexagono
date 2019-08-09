@@ -2,7 +2,7 @@
 
 ## Aula
 
-Link para vídeo-aula: 
+Link para vídeo-aula: https://youtu.be/_HjgYwAxI5k
 
 ## Introdução 
 
